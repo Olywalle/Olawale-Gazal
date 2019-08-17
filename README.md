@@ -1,0 +1,2 @@
+# Olawale-Gazal
+Olawale Omotolani Gazal was born in Lagos Nigeria (October 14th 2001). He is the first Child of his Mother and Father, and the first grandchild of his mothers side. Olawale has 3 younger brothers. He dances with Fitkids Fitteens (FKFT) since he was 11 years old,he started dancing at the age of 4 when he got inspired by[1] Michael Jackson. Ever since then he has never given up on dancing. Olawale has 4K+ followers on Instagram
